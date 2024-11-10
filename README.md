@@ -9,4 +9,3 @@
 - Der **KI**lian hat Plan frag den mal wenn er da ist.
 - ... als ich noch ein kleiner Butschi war.
 - Oh nein! ***[/oː ˈneːːːn/]***
-- Das doch bestimmt von dem Ali aus Chinesien.- Das doch bestimmt von dem Ali aus Chinesien.- Oh nein! ***[/oː ˈneːːːn/]***
