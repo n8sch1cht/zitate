@@ -16,3 +16,4 @@
 - Erleben, was verbindet – mit VPN sicher durchs Telekom-Peering!
 - Jedes Netzwerk wo ich nicht der Admin bin hat PVP an!
 - Warum fragst du mich? Lies einfach die Doku!
+- Ich bin mal kurz weg...
