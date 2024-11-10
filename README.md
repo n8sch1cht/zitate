@@ -19,3 +19,4 @@
 - Ich bin mal kurz weg...
 - Latency gibts nicht nur im Netzwerk.
 - Topfschlagen.
+- Das ist kein Bug, das ist ein Feature!
