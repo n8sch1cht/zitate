@@ -10,3 +10,4 @@
 - ... als ich noch ein kleiner Butschi war.
 - Oh nein! ***[/oː ˈneːːːn/]***
 - Ich habe Unify im Einsatz...
+- Das doch bestimmt von dem Ali aus Chinesien.
