@@ -5,3 +5,4 @@
 - Wollen wir es richtig oder Brühpolnisch machen?
 - Was bist du denn jetzt so?
 - ... als ich noch ein kleiner Butschi war.
+- /oː ˈneːːːn/
