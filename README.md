@@ -1,6 +1,6 @@
 # N8sch1cht: Zitate
 
-- Sie werden dich irgendwann Fi**en.
+- Sie werden dich irgendwann Fi**en!
 - Das ist halt so als ob man versucht eine Suppe mit einer Gabel zu essen.
 - Willst du die Richtige oder die Brühpolnische loesung?
 - Was bist du denn jetzt so?
