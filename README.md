@@ -14,3 +14,4 @@
 - Ich frag mal Chad...
 - .. Details ..
 - Erleben, was verbindet – mit VPN sicher durchs Telekom-Peering!
+- Jedes Netzwerk wo ich nicht der Admin bin hat PVP an!
