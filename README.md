@@ -2,7 +2,7 @@
 
 - Sie werden dich irgendwann Fi**en!
 - Das ist halt so als ob man versucht eine Suppe mit einer Gabel zu essen.
-- Willst du die Richtige oder die Brühpolnische loesung?
+- Willst du die Richtige oder die Brühpolnische Lösung?
 - Was bist du denn jetzt so?
 - Wenn ihr ganz Still seid koennt ihr die Topgun Musik hoeren?
 - F16 Fliegen ist nich leicht wir warten auf die Absturzmeldung.
