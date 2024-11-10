@@ -8,6 +8,6 @@
 - F16-Fliegen ist nicht leicht, wir warten auf die Absturzmeldung.
 - Der **KI**lian hat Plan frag den mal wenn er da ist.
 - ... als ich noch ein kleiner Butschi war.
-- /oː ˈneːːːn/
+- Oh nein! ***[/oː ˈneːːːn/]***
 - Ich habe Unify im einsatz,
-- Das doch bestimmt von dem Ali aus Chinesien.
+- Das doch bestimmt von dem Ali aus Chinesien.- Das doch bestimmt von dem Ali aus Chinesien.- Oh nein! ***[/oː ˈneːːːn/]***
