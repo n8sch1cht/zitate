@@ -20,3 +20,4 @@
 - Latency gibts nicht nur im Netzwerk.
 - Topfschlagen.
 - Das ist kein Bug, das ist ein Feature!
+- Kannst du mir mal die TLDR-Fassung geben?
