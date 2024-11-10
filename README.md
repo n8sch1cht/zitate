@@ -18,3 +18,4 @@
 - Warum fragst du mich? Lies einfach die Doku!
 - Ich bin mal kurz weg...
 - Latency gibts nicht nur im Netzwerk.
+- Topfschlagen.
