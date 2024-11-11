@@ -36,3 +36,4 @@
 - Vodafone Cable hat mehr Paketverlust als Hermes.
 - Wenn du dich auf andere verlässt, bist du verlassen.
 - Guter Pfusch ist keine schlechte Arbeit!
+- Lange Rede überhaupt kein Sinn 
