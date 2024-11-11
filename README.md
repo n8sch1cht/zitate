@@ -29,3 +29,4 @@
 - Wie Schmeckt dir der Schw*nz?
 - It's Always DNS!
 - Mach den Kopf zu!
+- BSD Entwickler sind Keine Menschen!
