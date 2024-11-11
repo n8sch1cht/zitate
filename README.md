@@ -34,3 +34,4 @@
 - ... und wir gehen erst wieder, wenn der Anschluss läuft!
 - Warum auf gute Verbindung hoffen? "**Vodafail**" bringt dich zurück in die Realität.
 - Vodafone Cable hat mehr Paketverlust als Hermes.
+- Auf Hersteller verlassen, bist du verlassen.
