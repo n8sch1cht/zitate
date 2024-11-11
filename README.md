@@ -30,3 +30,4 @@
 - It's Always DNS!
 - Mach den Kopf zu!
 - BSD Entwickler sind Keine Menschen!
+- Das **B** in **B**SD steht für **Butthurt!**
