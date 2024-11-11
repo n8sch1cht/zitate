@@ -31,4 +31,4 @@
 - Mach den Kopf zu!
 - BSD Entwickler sind Keine Menschen!
 - Das **B** in **B**SD steht für **Butthurt!**
-- ... und wir gehen erst wieder, wenn der Anschluss läuft?
+- ... und wir gehen erst wieder, wenn der Anschluss läuft!
