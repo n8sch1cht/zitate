@@ -37,3 +37,6 @@
 - Wenn du dich auf andere verlässt, bist du verlassen.
 - Guter Pfusch ist keine schlechte Arbeit!
 - Lange Rede, überhaupt kein Sinn.
+- ISP = Ich Sehe Probleme.
+- API? Also Problemlösung Irgendwie.
+- SMTP – Das **R** steht für Realtime!
