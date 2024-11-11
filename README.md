@@ -21,7 +21,7 @@
 - Topfschlagen.
 - Das ist kein Bug, das ist ein Feature!
 - Kannst du mir mal die TLDR-Fassung geben?
-- Du musst das zu einem **"PAL"** (Problem anderer Leute) machen!
+- Du musst das zu einem **PAL** (Problem anderer Leute) machen!
 - Das Fahrrad.
 - OPNsense - die Lösung all deiner Netzwerkprobleme.
 - Wir machen hier kein Kink-Shaming!
