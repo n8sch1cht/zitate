@@ -24,4 +24,5 @@
 - Du musst das zu einem **"PAL"** (Problem anderer Leute) machen!
 - Das Fahrrad.
 - OPNsense - die Lösung all deiner Netzwerkprobleme.
-- Wir machen hier kein Kink-Shaming ? 
+- Wir machen hier kein Kink-Shaming ?
+- Daddy f*ck mich härter! 
