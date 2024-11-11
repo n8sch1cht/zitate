@@ -29,4 +29,6 @@
 - Wie Schmeckt dir der Schw*nz?
 - It's Always DNS!
 - Mach den Kopf zu!
+- BSD Entwickler sind Keine Menschen!
+- Das **B** in **B**SD steht für **Butthurt!**
 - ... und wir gehen erst wieder, wenn der Anschluss läuft?
