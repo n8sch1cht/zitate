@@ -40,3 +40,4 @@
 - ISP = Ich Sehe Probleme.
 - API? Also Problemlösung Irgendwie.
 - SMTP – Das **R** steht für Realtime!
+- Die Stimme aus dem Off.
