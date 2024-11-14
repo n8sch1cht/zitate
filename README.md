@@ -42,5 +42,6 @@
 - SMTP – Das **R** steht für Realtime!
 - Die Stimme aus dem Off.
 - Illegale ... Technik.
-
+- Der Techniker ist bereits informiert...
+- ... wohnt jetzt hier....
 
