@@ -46,4 +46,4 @@
 - ... wohnt jetzt hier....
 - Kaum macht man es **richtig**, klappt's auch.
 - ...Spricht mit verschlüsselung
--Ich will doch **nur** E-Mails verschicken.
+- Ich will doch **nur** E-Mails verschicken.
