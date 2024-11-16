@@ -47,3 +47,4 @@
 - Kaum macht man es **richtig**, klappt's auch.
 - ...Spricht mit verschlüsselung
 - Ich will doch **nur** E-Mails verschicken.
+- Jenachdem wie du das einstellst ist das dann halt eingestellt
