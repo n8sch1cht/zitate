@@ -45,6 +45,6 @@
 - Der Techniker ist bereits informiert...
 - ... wohnt jetzt hier....
 - Kaum macht man es **richtig**, klappt's auch.
-- ...Spricht mit verschlüsselung
+- ...spricht mit Verschlüsselung.
 - Ich will doch **nur** E-Mails verschicken.
-- Jenachdem wie du das einstellst ist das dann halt eingestellt
+- Je nachdem, wie du das einstellst, ist es dann entsprechend eingerichtet.
