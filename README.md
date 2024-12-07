@@ -51,3 +51,4 @@
 - Spieglein Spieglein auf dem Tisch, ich bin müde, mach mich frisch
 - Wat du hast, dat hast du, und dat nimmt dir och keener mehr wech!
 - ... Discord tut wieder Discord Sachen ...
+- Dann stehst du da mit offenem Haar.
