@@ -55,3 +55,4 @@
 - Ist die Anfrage noch so dämlich, der Kunde der ist König
 - Schickste Scheisse, kriegste Scheisse!
 - Wer hilft wo fördern reicht, der schadet!
+- So ein großer Feuerball, Junge! 
