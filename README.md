@@ -57,3 +57,4 @@
 - Wer hilft wo fördern reicht, der schadet!
 - So ein großer Feuerball, Junge!
 - ...dann hast du eben Pech gehabt und Leute die Pech gehabt haben, können wir nicht brauchen.
+- VLANs, wenn du dich nicht mindistens einmal aussperrst, machst du es nicht richtig.
